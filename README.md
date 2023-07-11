@@ -1,6 +1,7 @@
 ### Hi there, mi nombre es Dayana Lima Figueroa
 
-![Gamer (5) - copia](https://github.com/dlimaf/dlimaf/assets/121907636/8dc044a9-b7ad-477b-9229-ea7e8ac60afc)
+![Gamer (6)](https://github.com/dlimaf/dlimaf/assets/121907636/e0993188-0778-426c-82e6-7db7860f0a3d)
+
 
 
 
